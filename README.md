@@ -3,10 +3,6 @@
 Halo gais~
 <br>Selamat datang~
 <br>haloo
-<br> namaku siapa
-
+<br>namaku siapa
+<br> 
 # Lirik Burung Kakak Tua
-
-<br>Burung Kakak Tua
-<br>tesssss
-<br>Hinggap di jendela -latip
