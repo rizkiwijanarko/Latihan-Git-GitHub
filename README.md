@@ -24,3 +24,12 @@ Halo gais~
 <br>Sorong Kekiri
 <br>Sorong Kekanan
 <br>lalalalalla
+
+
+# Upin Ipin
+
+<br>Tanam-tanam ubi
+<br>Tak perlu dibaja
+<br>Orang berbudi
+<br>Kita berbahasa
+<br>Naik kereta api
