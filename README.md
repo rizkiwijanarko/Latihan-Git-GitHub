@@ -11,7 +11,14 @@ Halo gais~
 
 # Tik tik tik bunyi hujan (by Dhiaka)
 
+Tik tik tik bunyi hujan di atas genting
+Airnya turun tidak terkira
+Cobalah tengok
+Dahan dan Ranting
+Pohon di kebun basah semua
+
 # Lagu Pembunuhan
+
 <br>Potong Bebek Angsa, Angsa Di Kuali
 <br>Nona Minta Dansa, Dansa 4 kali
 <br>Sorong Kekiri
