@@ -4,5 +4,5 @@ Halo gais~
 <br>Selamat datang~
 <br>haloo
 <br>namaku siapa
-<br> 
+<br> namaku adalah
 # Lirik Burung Kakak Tua
