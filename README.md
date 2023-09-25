@@ -10,3 +10,10 @@ Halo gais~
 # Kumpulan Lagu Anak
 
 <br>Tik tik tik bunyi hujan (by Dhiaka)
+
+# Lagu Pembunuhan
+<br>Potong Bebek Angsa, Angsa Di Kuali
+<br>Nona Minta Dansa, Dansa 4 kali
+<br>Sorong Kekiri
+<br>Sorong Kekanan
+<br>lalalalalla
