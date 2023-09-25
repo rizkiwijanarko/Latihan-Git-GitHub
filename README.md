@@ -5,6 +5,6 @@ Halo gais~
 <br>haloo
 <br>namaku siapa
 <br> tes
-<br> namaku adalah
+<br> namaku adalah bejo
 
 # Lirik Burung Kakak Tua
