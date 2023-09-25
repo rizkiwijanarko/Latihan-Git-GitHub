@@ -17,7 +17,7 @@ Cobalah tengok
 Dahan dan Ranting
 Pohon di kebun basah semua
 
-# Lagu Pembunuhan
+# Lagu Pembunuhan (By Steven)
 
 <br>Potong Bebek Angsa, Angsa Di Kuali
 <br>Nona Minta Dansa, Dansa 4 kali
