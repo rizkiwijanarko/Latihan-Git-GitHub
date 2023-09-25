@@ -11,11 +11,11 @@ Halo gais~
 
 # Tik tik tik bunyi hujan (by Dhiaka)
 
-Tik tik tik bunyi hujan di atas genting
-Airnya turun tidak terkira
-Cobalah tengok
-Dahan dan Ranting
-Pohon di kebun basah semua
+<br> Tik tik tik bunyi hujan di atas genting
+<br> Airnya turun tidak terkira
+<br> Cobalah tengok
+<br> Dahan dan Ranting
+<br> Pohon di kebun basah semua
 
 # Lagu Pembunuhan
 
